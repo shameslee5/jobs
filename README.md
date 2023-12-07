@@ -1,1 +1,2 @@
 # jobs
+Employers value employability skills because they regard these as indications of how you get along with other team members and customers, and how efficiently you are likely to handle your job performance and career success. if you are eligible to this criteria , so you can get [job in parlemnt house islamabad](https://easpakjobs.com/ots-senate-secretariat-of-pakistan-jobs-2023-federal-govt-of-pakistan/).
